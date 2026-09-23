@@ -1,4 +1,61 @@
-## Top 384 friends
-anmol098, injoon5, araguaci, Temtaime, AdamMomen, prakashsellathurai, WillAbides, bcm-works, mscoutermarsh, dfreilich, vaimalaviya1233, jahirfiquitiva, lyquita, susanka068, tcbyrd, travisbyr, kallyas, rzhade3, sciencepal, mamun2425, katungi, mzaini30, jatin-rathee, OmgImAlexis, gargakshit, JamesMGreene, Schlauer-Hax, tirthajyoti-ghosh, amuuu, Ritika-Das, MuYunyun, agucova, na-ji, ephraimduncan, MarikIshtar007, gauravghongde, hiwijaya, anish-ansari, WaylonWalker, NoNamePro0, timburgan, notBdougie, gleich, whuang8, ildgz, vedic-partap, fly51fly, lucascosti, jasonlong, tarebyte, simonw, simonfl3tcher, jefftriplett, timothyr, anamul430470, hashtagchris, airzinger, tracydemery36, gokayokyay, doms, iMackson, tommylees112, krider2010, jimkang, vladimyr, marcelinollano, javierarce, hmarr, tmcw, baloran, ggamel, b8x, socheatsok78, bradpurchase, jclem, heimann, enriikke, jpemberthy, donokuda, BenEmdon, nixpad, eliperkins, maestromac, nholden, nickvanw, ryangjchandler, mxschmitt, m1guelpf, jessewaites, andreasklinger, nhuebecker, hfaulds, Ilshidur, cdb, mxie, iheanyi, andymckay, JasonEtco, cschleiden, wilhelmklopp, Mindula-Dilthushan, FPLCodes, raulpenate, Movindu-tb, mggcode, Carol42, schmeekygeek, munezerobagira, R3M4G, skullface, anis-marrouchi, RebeccaRamalho, mhauri, Fancy11111, codematrixaditya, bokssssss, liva32, nachoal, pranav07-git, Skema1114, 0l1v3rr, YuZhangWang, danBamikiya, hackshen, immarktube, kinduff, L00N1E, ZTzTopia, aad211, Rahleks, MansiAyer, dayfundora, eavichay, shunkakinoki, carsonjones, ImLoaD, kokonut27, nushakkza, SirMendacium, kirillzhosul, bdougie, dacoffey, IronCodem, MarcinK50, lucaslamdev, jcblw, moghwan, cbebe, runxel, vishwaphansal7, 0xkhan, Anidimma, jayphills76, casswedson, dayne, ItalianSquirel, inishawl, riverpaper, fahd-akbar, tnv1r, darkdarcool, abhay7dev, rayhanadev, tfSheol, Eandalf, adejorosam, Rohith04MVK, Dazt5, marcoroth, andrewmcodes, tomlin7, kjaksik, xPapla, CesarAugusto15, alexawesomecode, Mridul2820, DanRowe, sohansubhash, quackduck, andietimes9, cjdenio, BenNeighbour, adhaamehab, ojaha065, johnletey, 0xLeif, lukew3, arafat-hasan, CrazyChickenDev, NihalV123, bojdell, sebastien-vedrine, hedyhli, fcomovaz, dereknguyen269, AugustinJose1221, khanraisa124, ABSphreak, bsoyka, eagleanurag, chebupelka8, hamzalodhi2023, dgraham, livghit, peckjon, ajorquera, marcellomuniz, RealMrSHA, utkarshpant, daniellalasa2, HsiangNianian, CamoCatX, dakdevs, cOborski, andreolf, TheDayIsMyEnemy, kamal-ganwani, ayakase, saraiovieira, vershwal, jcdalbello, akhilkarthik, marseko, MichaelDimmitt, scout0773, Tophhhhh, mike2339, ivan-developer-01, i183x, MuhammadIbtisam, rohitpaulk, sferik, jamiew, PineAppleGrits, NimaasW, mozz01, SophieHervieu, imMatheus, guilyx, yosiat, ppritesh, CODE-G-ROOT, David159dht, vinhmai0108, ajtazer, EmilioBlacksmith, Limitinit, anoonan, shivamchhapola, X-itachi-X, julycrystal, kasinadhsarma1, akash-codes-fit, multikitty, BGRicker, emanoelcampos, ttiramisu, phnx47, eduardz097, abnas7511, HwangTaehyun, Shoaib19, bano-kauser, krapans, iamalbinnj, congthanhng, 8bllgrl, YassineBaghdadi, DamianoPellegrini, harmzway, AkshayHere, DavDeDev, fuzzygroup, Leoche, TheCleverIdiott, affix, EyesackEl, RoscoeDaWah, amdadulbari, TechPenguineer, Rohit19060, Sartaj21, generalpy101, HarshitKumar9030, GraceWXT, felipesanma, TheSerphh, HENRYMARTIN5, samfreund, Ochieng424, k2glyph, YogPanjarale, itsgoofer, bfrederick18, Jiaocz, DanyGlez94, Kay-Ceee, daalla, Yakumwamba, amiyoghoshstar, VirenZal, iamvishaal491, manzil-infinity180, AkhileshSR, batu0labs, nthakuruk, Nivekhitha, Thiago-Tolosa, RexHammack, mobina-hsz, plusk-dev, cullen-carstens, dexisworking, Farjmand, Maaarrll, 503badgateway, urielcookies, Chilllyy, Pranav-MSK, FabrizioTorrico, Anton3413, isaacdyor, ddxMusic68, nlimeres, SivaramPg, daniellockyer, germangamboa95, onyiebaby, Punkwe1ght, jeffaf, steelzzeu, beanieboi, NischalKeshav, TaXi0k, cacticrown, 4uffin, kirillshevch, Parkingpet, danielsimass, ggeorge185, mdsarfarazalam840, trinhminhtriet, tatyquebralayout, kafwe, jbjalandoon, rohit6996, fazzymwai, JoaoVictorCoder, pmarsceill, mcrauwel, ashutoshtiwari0928, harshbenahalkar, r4h33q, rookiexdev, msnjdev, LoneStamp, 5quirre1, DeiseFreire, Jayspie, wish13yt, imgaty, krple, war408705279, heysaeed, sarwan-surchi, HarbingerOfFire, nagybalazs1001, bunubbv, Murcegany, MatheusLima2023, eyesonjesusplease, Thecode764, a0ax, 0xMALVEE, SchizoVIv, krishofer, lyb124553153, missAnneThorpe, lucy-kevin, Langham94, huuquyet, Inevitable-Design, ytmrkm, anouar-garbaa
+## Hey 👋, I'm Rahul Jha!
+<a href='https://www.linkedin.com/in/rahul-jha98/'><img align='left' alt="linkedin" src="https://raw.githubusercontent.com/rahul-jha98/rahul-jha98/561d474902b59c7429ec22bb73e225696c27b202/assets/linkedin.svg" height='18px'/></a>
+<a href='https://twitter.com/jharahul98/'><img align='left' alt="twitter" src="https://raw.githubusercontent.com/rahul-jha98/rahul-jha98/561d474902b59c7429ec22bb73e225696c27b202/assets/twitter.svg" height='18px'/></a>
+<a href='https://www.kaggle.com/rahuljha98/'><img alt="kaggle" src="https://raw.githubusercontent.com/rahul-jha98/rahul-jha98/561d474902b59c7429ec22bb73e225696c27b202/assets/kaggle.svg" height='18px'/></a>
 
-*Star [this repo](https://github.com/mscoutermarsh/mscoutermarsh), to add yourself here.*
+
+I am a versatilist and easily adapt to different hats (Full Stack Web Developer 🌐, App Developer 📱, ML Engineer 🤖 or beginner level Designer 🎨) depending on what the project requires. I love exploring new tech stack 💻 and leveraging them to build cool stuffs 🛠️. 
+<br/>
+<br/>
+
+<img align="right" alt="GIF" src="https://raw.githubusercontent.com/rahul-jha98/rahul-jha98/main/techstack.gif" width="360px"/>
+  
+### 🧐 More About Me:
+
+- 🔭 &nbsp; I’m currently working on **youtube-audio-player**
+- 🤝 &nbsp; I’m looking to collaborate on [sheets-database](https://github.com/rahul-jha98/sheets-database)
+- 🌱 &nbsp; I’m currently learning Typescript; 
+- 👨🏻‍💻 &nbsp; Most of my projects are available on [Github](https://github.com/rahul-jha98?tab=repositories)
+- 🎨 &nbsp; Using [this svg](https://storyset.com/illustration/javascript-frameworks/amico) and Figma I made 👉
+- 💬 &nbsp; Ask me about anything tech related, I am happy to help;
+- 📫 &nbsp; Feel free to ping me on [LinkedIn](https://www.linkedin.com/in/rahul-jha98/)
+- 📝 &nbsp; Checkout my [resume](https://drive.google.com/file/d/1ZpR5pVBTnl_Qybq7GE3MGy1SB1JehVSE/view?usp=sharing)
+- 📚 &nbsp; When I am free, I read fantasy and fiction novels. Checkout my [Goodreads](https://www.goodreads.com/rahul-jha98) to see the book I have read
+
+<br>
+
+### 🔨 Languages and Tools:
+<a href="https://pytorch.org/" target="_blank"> <img align="left" src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/pytorch/pytorch.svg" alt="pytorch" height="42px"/> </a> 
+<a href="https://www.tensorflow.org" target="_blank"> <img align="left" src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/tensorflow/tensorflow.svg" alt="tensorflow" height="42px"/> </a> 
+<a href="https://www.python.org" target="_blank"><img align="left" alt="Python" height ="42px" src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/python/python.svg"></a>
+<a href="https://developer.android.com" target="_blank"> <img align="left" alt="Android" height ="42px" src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/android/android.svg"> </a>
+<a href="https://kotlinlang.org" target="_blank"><img align="left" alt="Kotlin" height ="42px" src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/kotlin/kotlin.svg"></a>
+<a href="https://www.java.com" target="_blank"><img align="left" alt="Java" height ="42px" src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/java/java.svg"></a>
+<a href="https://firebase.google.com/" target="_blank"> <img align="left" src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/firebase/firebase.svg" alt="firebase" height ="42px"/> </a>
+<a href="https://developer.mozilla.org/en-US/docs/Web/JavaScript" target="_blank"> <img align="left" alt="JavaScript" height ="42px"  src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/javascript/javascript.svg"> </a>
+<a href="https://www.typescriptlang.org/" target="_blank"><img align="left" alt="Typescirpt" height ="42px" src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/typescript/typescript.svg"></a>
+<a href="https://reactjs.org/" target="_blank"> <img align="left" alt="React" height ="42px" src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/react/react.svg"></a>
+<a href="https://nodejs.org" target="_blank"><img align="left" alt="Node.js" height ="42px" src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/node/node.svg"></a>
+<a href="https://git-scm.com/" target="_blank"> <img src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/git-scm/git-scm.svg" align="left" alt="git" height='42px'/> </a>
+<a href="https://www.figma.com/" target="_blank"> <img src="https://raw.githubusercontent.com/rahul-jha98/github_readme_icons/main/language_and_tools/square/figma/figma.svg" alt="figma" height='42px'/> </a>
+
+<br>
+
+
+### 📊 Github Stats
+<a href='https://github.com/rahul-jha98/github-stats-transparent'>
+  
+![Stats Overview](https://raw.githubusercontent.com/rahul-jha98/github-stats-transparent/output/generated/overview.svg)
+![Most Used Languages](https://raw.githubusercontent.com/rahul-jha98/github-stats-transparent/output/generated/languages.svg)
+
+</a>
+
+<br>
+
+### 🛠️ My Projects
+<a href="https://rahul-jha98.github.io/Artistify.ai/" target="_blank"> <img alt="artistify" src="./projects/artistify.svg" height="68" align="left"> </a>
+<a href="https://rahul-jha98.github.io/sheets-database/" target="_blank"> <img alt="sheetsdatabase" src="./projects/sheetsdatabase.svg"  height="68" align="left"> </a>
+<a href="https://github.com/rahul-jha98/README_icons" target="_blank"> <img alt="readmeicons" src="./projects/readmeicons.svg" height="68" align="left"> </a>
+<a href="https://thepasswordkeeper.netlify.app/" target="_blank"> <img alt="passwordkeeper" src="./projects/passwordkeeper.svg" height="68" align="left"> </a>
+<a href="https://github.com/rahul-jha98/PasswordKeeper" target="_blank"> <img alt="oxytracker" src="./projects/oxytracker.svg" height="68" align="left"> </a>
+<a href="https://wavelengths.netlify.app/" target="_blank"> <img alt="wavelength" src="./projects/wavelength.svg" height="68" align="left"> </a>
